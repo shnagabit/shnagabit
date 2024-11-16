@@ -1,0 +1,4 @@
+- 👋 Hi, I’m shnaga
+- 💞️ I’m looking to collaborate on: im not
+- 📫 How to reach me: don't
+- 😄 Pronouns: he/him
